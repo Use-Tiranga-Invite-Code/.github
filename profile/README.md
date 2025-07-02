@@ -10,7 +10,7 @@
 
 </div>
 
-# ✅ Tiranga Invite Code 2757419478643 – Claim ₹50 Bonus Instantly with Tiranga Game Invite Code 2757419478643
+# Tiranga Invite Code 2757419478643 - Register & Win Big
 
 Want a head start in your favorite cash games? The **Tiranga Invite Code 2757419478643** is the shortcut to free rewards. If you're registering for the first time, use the **Tiranga Game Invite Code 2757419478643** to get an instant bonus and begin your journey the smart way!
 
